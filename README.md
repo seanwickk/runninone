@@ -1,1 +1,1 @@
-love of money
+## **must stay prayed and paid to win**
